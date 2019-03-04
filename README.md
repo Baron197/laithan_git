@@ -1,4 +1,5 @@
-# Team 7
+#Team 7
+
 __*Mandatory servant*__
 ### List of servant
 1. Waver
@@ -40,4 +41,4 @@ Quick | x0.8 | Generate critical stars
 
 ![gambar haram](https://i.kym-cdn.com/photos/images/newsfeed/000/897/576/ce1.jpg)
 
-[![video spook](https://www.youtube.com/watch?v=DJfg39WkMvE&t=26s)]
+[![video spook](https://i.ytimg.com/vi/DJfg39WkMvE/hqdefault.jpg?sqp=-oaymwEZCNACELwBSFXyq4qpAwsIARUAAIhCGAFwAQ==&rs=AOn4CLBUuycfCODTJ_L0JdO6MiH-X4Pi2w)](https://www.youtube.com/watch?v=DJfg39WkMvE)
