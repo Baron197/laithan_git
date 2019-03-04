@@ -41,6 +41,6 @@ Quick | x0.8 | Generate critical stars
 
 ![gambar haram](https://i.kym-cdn.com/photos/images/newsfeed/000/897/576/ce1.jpg)
 
-[![video spook](https://i.ytimg.com/vi/DJfg39WkMvE/hqdefault.jpg?sqp=-oaymwEZCNACELwBSFXyq4qpAwsIARUAAIhCGAFwAQ==&rs=AOn4CLBUuycfCODTJ_L0JdO6MiH-X4Pi2w)](https://www.youtube.com/watch?v=DJfg39WkMvE)
+[![video spook](https://i.ytimg.com/an_webp/DJfg39WkMvE/mqdefault_6s.webp?du=3000&sqp=COCd8-MF&rs=AOn4CLCvvhJzIDWrWK4GZgRHaDLYUY2PRw)](https://www.youtube.com/watch?v=DJfg39WkMvE)
 
 :trollface:
